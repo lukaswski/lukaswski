@@ -1,3 +1,3 @@
-# Just frontend developer 🦾🤖❤️
+# Frontend developer 🦾
 
 
